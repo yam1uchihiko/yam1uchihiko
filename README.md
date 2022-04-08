@@ -4,4 +4,5 @@ I prefer he/they , and my age is personal .
 I have very severe Agoraphobia , , which is the fear of crowds / crowded spaces , , a VERY valid reason for my TT and CT .
 I enjoy the following fandoms ; Danganronpa , FNaF , Creepypasta , Beastars , Pokemon , DSMP , HH / HB .
 ! TOXIC PEOPLE FROM THE FANDOMS WILL BE HIDDEN / IGNORED !
-I have adhd and add , so i may dissociate at times . i also hate being rushed , it panicks me , , so please kindly refrain from doing that =)
+I have adhd and add , so i may dissociate at times . i also hate being rushed , it panicks me , , so please kindly refrain from doing that
+Also feel free to approach ! I'm usually a very nice person if you respect boundaries <3
