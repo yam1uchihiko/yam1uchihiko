@@ -1,8 +1,10 @@
-Hello ! you may call me Yami , , I usually sit at the docks , fnaf area , hazbin hotel area , or at my island .
-I host at times , , so look for me ! You may find me in my Kokichi kinsona skin , Melon ( from Beastars ) skin , or my main oc Yami !
-I prefer he/they , and my age is personal .
-I have very severe Agoraphobia , , which is the fear of crowds / crowded spaces , , a VERY valid reason for my TT and CT .
-I enjoy the following fandoms ; Danganronpa , FNaF , Creepypasta , Beastars , Pokemon , DSMP , HH / HB .
-! TOXIC PEOPLE FROM THE FANDOMS WILL BE HIDDEN / IGNORED !
-I have adhd and add , so i may dissociate at times . also dyslexia so please be patient . i also hate being rushed , it panicks me , , so please kindly refrain from doing that .
-Also feel free to approach ! I'm usually a very nice person if you respect boundaries <3
+hi !! i'm Yami ! go by he/they , i am not very good at first impressions . here are some kins : Simpbur , Pietro (Animal Crossing) , Kokichi , and Popee ! i have dyslexia and adhd , so i may be a bit slow and hyperactive a times .
+i mostly sit by docks or the fnaf area . i host a lab rp sometimes , so look for me !! i have a touch trigger and crowd trigger , it was caused by an ex and irl crowd issues . please be patient !
+
+FANDOMS I ENJOY : Popee The Performer , DSMP (or anything related!) , Danganronpa , FNaF , Animal Crossing , and Sanrio . _TOXIC PEOPLE FROM THE FANDOMS WILL BE IGNORED OR HIDDEN !!_
+
+i have severe agoraphobia and emetophobia , i also deal with irl issues . so please respect that !
+
+i go by many names , but most people know me by Yami .
+here are some names i prefer to be used : Yami , River , Rat , Toast , Rabbit , Simpbur .
+- :)
