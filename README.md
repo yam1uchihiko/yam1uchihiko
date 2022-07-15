@@ -8,4 +8,4 @@ kin list : The Collector (TOH) , Popee (PTP) , Simpbur (DSMP/DSMPAU) , Jevil (DR
 
 current triggers : mentions of v0mit of any kind , in-game touch trigger and crowd/cover trigger (this was cause by irl and in-game issues)
 
--:]
+- :]
