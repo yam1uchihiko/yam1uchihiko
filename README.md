@@ -1,10 +1,11 @@
-hi !! i'm Yami ! go by he/they , i am not very good at first impressions . here are some kins : Simpbur , Pietro (Animal Crossing) , Kokichi , and Popee ! i have dyslexia and adhd , so i may be a bit slow and hyperactive a times .
-i mostly sit by docks or the fnaf area . i host a lab rp sometimes , so look for me !! i have a touch trigger and crowd trigger , it was caused by an ex and irl crowd issues . please be patient ! you can int ! i'm mostly looking for active friends 💜
+HELLOOO !! i am yami , but i go by many other names . i enjoy art , games , reading , and talking . i have undiagnosed adhd , dyslexia , and anxiety .
+the fandoms i enjoy : fnf(only certain parts) , fnaf , danganronpa , sonic , the owl house , dsmp , mcyt / mc , and others .
+!!TOXIC PEOPLE/HATERS FROM THE FANDOM WILL BE IGNORED/HIDDEN!!
 
-FANDOMS I ENJOY : Popee The Performer , DSMP (or anything related!) , Danganronpa , FNaF , Animal Crossing , and Sanrio . _TOXIC PEOPLE FROM THE FANDOMS WILL BE IGNORED OR HIDDEN !!_
+here is my discord incase you wanna be friends ! i am always up to make new friends : ♡ ~ ꜰʟᴇꜱʜ ᴀɴᴅ ʀᴏᴛ _ ~ ♡#0297
 
-i have severe agoraphobia and emetophobia , i also deal with irl issues . so please respect that !
+kin list : The Collector (TOH) , Popee (PTP) , Simpbur (DSMP/DSMPAU) , Jevil (DR)
 
-i go by many names , but most people know me by Yami .
-here are some names i prefer to be used : Yami , River , Rat , Toast , Rabbit , Simpbur .
-- :)
+current triggers : mentions of v0mit of any kind , in-game touch trigger and crowd/cover trigger (this was cause by irl and in-game issues)
+
+-:]
