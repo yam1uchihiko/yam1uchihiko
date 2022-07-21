@@ -4,5 +4,3 @@ alters ; Starclan , Feaux , Gynn , Furby , Yami , The Collector , Devil Cookie ,
 our host's name is River !
 
 we rp as random ocs or cosoplays often ! we are still looking into our situation , so we dont officially call ourselves a system yet .
-
-- :]
